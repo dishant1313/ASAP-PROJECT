@@ -9,3 +9,4 @@ some certifications done by ous
 ![WhatsApp Image 2024-12-16 at 22 10 05_6eebd6a8](https://github.com/user-attachments/assets/fd3d598c-7be3-4e44-a717-f3186afc68be)
 ![Screenshot 2024-12-16 221711](https://github.com/user-attachments/assets/7b6800c8-4dbc-485a-9418-a97542c1f1b2)
 ![Screenshot 2024-12-16 221836](https://github.com/user-attachments/assets/695c1e80-0f63-411f-bf73-4836844e20c5)
+![WhatsApp Image 2024-12-17 at 11 06 44_ff236e2a](https://github.com/user-attachments/assets/8e5490a7-b145-483f-aab0-0552b673a6a2)
